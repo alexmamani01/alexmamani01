@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on a Data Startup !!
 - 📫 How to reach me   in Linkedin https://www.linkedin.com/in/alexandra-mamani-data
 - 😄 Pronouns: She
-- ⚡ Fun fact: Im also a Jazz singer 
+- ⚡ Fun fact: I like singing jazz 
 
 <!---
 alexmamani01/alexmamani01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
